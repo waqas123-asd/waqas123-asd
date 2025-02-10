@@ -26,7 +26,7 @@ I'm a passionate **developer and designer** with expertise in **WordPress, JavaS
 ### 📩 Let's Connect!  
 📧 **Email:** anwarwaqas269@gmail.com  
 💼 **LinkedIn:** (https://www.linkedin.com/in/waqas-anwar-312857319/)
-👨‍💻 **Fiverr/Upwork:** [Waqas Anwar)  
+👨‍💻 **Fiverr/Upwork:**](https://www.fiverr.com/waqasanwar0036/buying?source=avatar_menu_profile) https://www.upwork.com/freelancers/~01352db289ed015ae4 
 
 ---
 
